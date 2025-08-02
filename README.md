@@ -11,7 +11,7 @@ January 2022 - August 2025
 Business system consultant
 February 2018 - December 2021
 
-payroll specialist
+Payroll specialist
 November 2007 - January 2017
 
 
