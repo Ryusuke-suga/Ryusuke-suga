@@ -14,5 +14,8 @@ February 2018 - December 2021
 Payroll specialist<br>
 November 2007 - January 2017
 
+# Certifications
+Certified Business Analysis Professional
+
 
 
